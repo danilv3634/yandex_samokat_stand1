@@ -1,1 +1,0 @@
-# yandex_samokat_stand1
